@@ -1,5 +1,8 @@
-4th Year student studying Business Information Systems at National College Of Ireland.
+College :
+First Class Honours Business Information Systems Graduate @ National College Of Ireland.
 
-8 months of experience as a Quality assurance Intern.
+Employment:
+Currently Working as a Software Engineer I @ LexisNexis Risk Solutions
 
-In my own time, I love to upskill by taking up new courses and developing the skills needed for a prosperous career in Information technology. 
+Hobbies:
+In my own time, I love to upskill by taking up new courses and developing the skills needed for a prosperous career in Information technology.
